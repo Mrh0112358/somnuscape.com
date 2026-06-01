@@ -1,2 +1,2 @@
-# smonuscape.com
-Sleep and Dream Wellness Platform Somuscape.com
+# somnuscape.com
+Sleep and Dream Wellness Platform Somnuscape.com
